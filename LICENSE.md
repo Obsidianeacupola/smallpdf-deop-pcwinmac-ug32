@@ -1,4 +1,4 @@
-# 
+# Exclusivo Smallpdf Desktop plantillas para Mac OS | Avanzado Smallpdf Desktop plantillas para PC Windows. Con previsión de flujo de caja y herramientas de colaboración — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
